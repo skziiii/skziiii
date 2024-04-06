@@ -1,16 +1,22 @@
-### Hi there 👋
+Hello!!
+My ig: @skziiii
+Dont forget to follow!😉
 
-<!--
-**skziiii/skziiii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Get to know me:
+My name is Laura, and
+Im from Indonesia.
+My nationalities are chinese and indonesian!
+I speak chinese, english, and indonesian.
 
-Here are some ideas to get you started:
+DISCLAIMER!!!
+I code for fun!! 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I am a:
+-digital artist
+-traditional artist
+-fashion designer
+-translator
+-coder
+-student
+
+
